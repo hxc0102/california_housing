@@ -11,3 +11,6 @@
 * [Murphys](http://www.visitcalifornia.com/kr/attraction/%EB%A8%B8%ED%94%BC%EC%8A%A4)
 * [Moaning Cavern](http://www.visitcalifornia.com/kr/attraction/%EB%AA%A8%EB%8B%9D-%EC%BA%90%EB%B2%88)
 * [Gilroy Gardens](http://www.visitcalifornia.com/kr/attraction/%EA%B8%B8%EB%A1%9C%EC%9D%B4-%EA%B0%80%EB%93%A0)
+***
+## Hotel California 뮤직비디오
+[![Img Alt Text](https://www.youtube.com/img/desktop/yt_1200.png)](https://www.youtube.com/watch?reload=9&v=BciS5krYL80)
